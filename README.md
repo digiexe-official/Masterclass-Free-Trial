@@ -13,12 +13,18 @@ The short answer is yes—sort of. While MasterClass doesn’t offer a tradition
 
 Ready to test MasterClass risk-free? Follow this foolproof plan:
 
-**Visit MasterClass.com:** Browse the course catalog to confirm it’s right for you.
+**[Visit MasterClass.com](https://www.bloggersideas.com/Recommended/masterclass/):** Browse the course catalog to confirm it’s right for you.
+
 **Choose a Plan:** Options include Individual, Duo, or Family (details below).
+
 **Sign Up:** Use a valid email and payment method (credit card, PayPal, or Apple Pay).
+
 **Dive In:** Stream or download courses for 30 days.
+
 **Evaluate:** Love it? Keep going. Not for you? Go to Settings → Membership → Cancel.
+
 **Request a Refund:** Contact support within 30 days for a full refund (processed in 5–10 business days).
+
 *Note: Be proactive about canceling if you don’t want to continue—set a reminder to avoid accidental charges.*
 
 [<img width="348" alt="image" src="https://github.com/user-attachments/assets/b5d6be34-7169-4dc9-94d2-01e327b14167" />
